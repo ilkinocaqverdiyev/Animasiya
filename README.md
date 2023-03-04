@@ -1,0 +1,2 @@
+# Animasiya
+Lahiye animasiya tiplidir .
